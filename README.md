@@ -1,0 +1,2 @@
+# thc
+synthetic thc dronabinol
